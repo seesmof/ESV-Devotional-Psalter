@@ -1,2 +1,3 @@
-# ESV Devotional Psalter
- Contains an ESV Devotional Psalter Book taken from ESV.org for the glory of Jesus Christ our Holy Heavenly Father GOD Almighty ✝️💗🙏
+<div align="center">
+  <img src="./Cover_Page.jpg" alt="ESV Devotional Psalter Cover Image" />
+</div>

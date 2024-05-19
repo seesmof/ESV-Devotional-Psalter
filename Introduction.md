@@ -1,0 +1,11 @@
+# Introduction
+
+The Psalms are unlike any other portion of Scripture. This is the one book of the Bible written to God. We are taught in many other places in Scripture how to pray. Jesus gave us the Lord’s Prayer ([Matt. 6:5–15](https://www.biblegateway.com/passage/?search=MT6.5-15&version=NASB)). Paul tells us to “pray without ceasing” ([1 Thess. 5:17](https://www.biblegateway.com/passage/?search=1TH5.17&version=NASB)). But the Psalms are themselves prayers.
+
+In this way the Psalms are uniquely suited to foster communion with God. The Psalms give voice to our hearts. The wide range of human feeling is here given concrete expression. We are given language to address God with thanks and praise, but also with our feelings of desolation or despair or overwhelming guilt because of our sin.
+
+And through it all we see the Savior walking through the Psalms. He is the one who embodies and fulfills all that we find in this book. He gives us supreme reason to give thanks and praise to God ([Ps. 107:1](https://www.biblegateway.com/passage/?search=PS107.1&version=NASB)). He is the one who experienced true desolation and despair, enduring separation from God so that his people never will ([Ps. 22:1–2](https://www.biblegateway.com/passage/?search=PS22.1-2&version=NASB)). Jesus rinses us clean through his atoning work and assures us that he has wiped away all the guilt of our sin.
+
+These profound and precious truths have led to the creation of the _ESV Devotional Psalter_. The purpose of this ESV edition is to foster communion with God amid all the ups and downs of daily life in this fallen world. The devotional content is meant to facilitate fellowship with God in the words of the Psalms. The devotionals are therefore intended not to replace deep engagement with the Psalms but rather to help the reader move deeply into this book of the Bible—and thereby to move deeply into communion with the triune God. Whether one reads through this volume straight through, day by day, or instead opens it in a less programmatic manner, the devotionals will consistently draw the reader’s eye back to the words of the Psalms themselves, leading to reflection and prayer.
+
+May you find consolation and comfort, assurance and grace, and indeed the very Savior himself as you ponder God and his presence in your life through the _ESV Devotional Psalter_.
